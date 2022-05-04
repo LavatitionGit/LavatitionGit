@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lavatiion, I make videos and play roblox
+- 👋 Hi, I’m Lavatition, I make videos and play roblox
 - 👍 I like Roblox, Minecraft
 - 🌱 I do coding stuff
 
